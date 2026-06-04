@@ -1,1 +1,0 @@
-# LORANS-SHOPSS
